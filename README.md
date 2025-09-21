@@ -1,2 +1,2 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ![vlcsnap-2024-09-08-00h43m46s475_3_50](https://github.com/user-attachments/assets/307edccc-344c-4e6a-bb37-682ca21bf9a0)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![491965400-307edccc-344c-4e6a-bb37-682ca21bf9a0](https://github.com/user-attachments/assets/d482fa6d-8b94-4e04-8def-0c36a05da128)
 
